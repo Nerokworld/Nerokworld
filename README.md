@@ -5,4 +5,4 @@ Hello! Welcome to my Github page. My name is Danil, I'm 13 years old, I'm fond o
 
 🧰 YouTube : https://www.youtube.com/Nerokk
 
-🔐 Telegram : @nknerok
+🔐 Telegram : @neroktg
